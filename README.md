@@ -3,7 +3,7 @@
 ☑ Standing side bend - 4 Sets X 20 Reps on each side
 - Stretches your waist while reducing pressure and tension in your spinal joints.
 
-![Standing side bend](https://i.pinimg.com/originals/2f/99/0c/2f990cb1c506615126817ff60fb4601e.gif)
+![Standing side bend](https://media1.popsugar-assets.com/files/thumbor/2QuCtHiWwfOzD-lco2FVbO0SKuo/fit-in/1024x1024/filters:format_auto-!!-:strip_icc-!!-/2018/08/09/735/n/1922729/a1d42633e85d4f7e_Standing_Oblique_Crunch_DB-720/i/Standing-Oblique-Crunch.gif)
 
 ☑ Side Plank - 4 Sets X 40 Reps on each side
 ![Side Plank](https://i.pinimg.com/originals/76/96/48/769648b90e57ad26a4c19f2ba9489fac.gif)
